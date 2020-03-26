@@ -1,5 +1,5 @@
 # IT_Company
-All of the irregular company we know
+## 根据热心群友提供信息整理，如有侵权，请联系作者删除！！！
 
 
 
